@@ -1,4 +1,4 @@
-## 请访问新网址
+## 从海外了解最新疫情及相关真实资讯：
 <h1><a href='http://tui.ddns.net/sars?from=51t'>http://tui.ddns.net</a></h1>
 或
 <h1><a href='http://ali.sytes.net/sars?from=51t'>http://ali.sytes.net</a></h1>
