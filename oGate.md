@@ -1,5 +1,5 @@
 ## 从海外了解最新疫情及相关真实资讯：
-<h1><a href='https://51tuidang.org/?from=51t'>https://51tuidang.org</a></h1>
+<h1><a href='http://51tuidang.org/?from=51t'>http://51tuidang.org</a></h1>
 
 <h1><a href='https://tuidang.ddns.net/from=51t'>https://tuidang.ddns.net</a></h1>
 
